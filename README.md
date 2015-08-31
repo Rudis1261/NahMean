@@ -26,6 +26,7 @@ FYI: Again, Well and OHHH are mostly interchangable
 - I see what you did there
 - What, what?
 - Da, fuck is this?
+- What the hell, is all this shit?
 
 ### General
 - You know it son (Aggreeing with someone's point of view)
