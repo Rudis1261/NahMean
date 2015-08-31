@@ -25,6 +25,7 @@ FYI: Again, Well and OHHH are mostly interchangable
 - You sonova beech
 - I see what you did there
 - What, what?
+- Da, fuck is this?
 
 ### General
 - You know it son (Aggreeing with someone's point of view)
