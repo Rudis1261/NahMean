@@ -24,3 +24,6 @@ FYI: Again, Well and OHHH are mostly interchangable
 - Why Casta, Why?
 - You sonova beech
 - I see what you did there
+
+### General
+- You know it son (Aggreeing with someone's point of view)
