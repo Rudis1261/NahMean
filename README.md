@@ -7,6 +7,7 @@ These are just some of the kooky things I say from time to time.
 - Sup Dog?
 - Sup Lady?
 - My Dog
+- Sup Man?
 
 FYI: Sup and My are for the most part interchangable. 
 
